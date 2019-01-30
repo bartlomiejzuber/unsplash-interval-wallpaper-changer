@@ -1,1 +1,0 @@
-# unsplash-interval-wallpaper-changer
